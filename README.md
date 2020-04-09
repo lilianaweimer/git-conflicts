@@ -1,4 +1,4 @@
-There was an old woman who lived in a shoe.  
-She had so many children, she didn’t know what to do;  
-She gave them some broth without any bread;  
-Then whipped them all soundly and put them to bed.  
+There was a caterpillar who lived in a shoe.  
+She had to go into a cocoon, she didn’t know what to do;  
+She climbed up a tree and sat on a branch;  
+Then gave in to destiny and learned how to fly.  
